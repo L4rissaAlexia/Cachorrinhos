@@ -1,2 +1,2 @@
-# Cachorrinhos
-Aqui vc vai conhecer filhotes de cachorro pra adoção 
+# animais de famoso 
+vamos conhecer os animais dos famosos
